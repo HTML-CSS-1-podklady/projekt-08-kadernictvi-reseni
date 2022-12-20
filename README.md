@@ -1,0 +1,1 @@
+# projekt-08-kadernictvi-reseni
